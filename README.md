@@ -1,2 +1,2 @@
 - I’m @EndEnderman
-- Reach me at realendenderman@gmail.com or on Discord (EndEnderman#9795)
+- Reach me at @RealEndEnderman or on Discord (EndEnderman#9795)
